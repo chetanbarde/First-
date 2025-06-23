@@ -1,2 +1,2 @@
 # First
-author : Chetan Barde
+author : Chetan Barde the legendary artist
